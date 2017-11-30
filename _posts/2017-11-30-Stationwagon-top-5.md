@@ -14,3 +14,13 @@ Een stationwagen van Duitse kwaliteit. De 550 pk sterke V8 gaat in 3,8 seconden 
 
 ![porsche](https://storage.googleapis.com/gtspirit/uploads/2017/07/Porsche-Panamera-Turbo-Sport-Turismo-23.jpg)
 
+### 3. Ferrari gtc4 lusso
+Op nummer drie een mooi Italiaanse kunstwerk uit Modena maar wel een kunstwerk met een dikke v12 voorin. de gtc4lusso is het nieuwe pareltje van Ferrari voor maarliefst 4 personen. De Ferrari heeft 690 pk en gaat in 3,4 seconden naar de 100 km/h. De Nederlandse vanafprijs is om en nabij de 373.000 euro. Ferrari zelf zegt dat de gtc4lusso meer ruimte biedt dan de welbekende Ford Focus. De bagageruimte is natuurlijk wel minder praktisch het is en blijft natuurlijk wel een Ferrari. De nieuwe achterlichten zijn ook fantastisch door het led.
+
+![rari](https://www.topgear.com/sites/default/files/styles/16x9_1280w/public/videos/image/chdgtc4.jpg?itok=nT0LohMB)
+
+### 4. Audi rs6
+Op nummer 4 Audi’s oogappeltje voor een groot gezin. De Audi rs6 is heel populair bij veel mensen. Onder de motorkap ligt een 4,0 liter v8 met twee turbo’s. De motor levert om en nabij de 6oopk op en rijdt in 3,7 seconden naar de 100 km/h. Als je er nog een paar centen bij legt krijg je een Audi rs6 performance uitlaat die geleverd wordt door akrapovic. En het door Audi geproduceerde quattro systeem is fantastisch. Mede door het quattro systeem van Audi gaat hij zo snel naar de 100 km/h. Met een topsnelheid van 305 km/h is het een hele snelle stationwagen.  In Nederland is de Audi met alle opties al te verkrijgen voor prijs van 204.000 euro.
+
+### 5. Bmw 540i
+De mannen van Bmw hebben niet zo iets wat heel snel gaat en echt geen hardcore station. Ze hebben een luxe en wat snellere station van de 5-serie. De Bmw 540i met de 3,0 liter sterke v6. Het is echt een auto voor mensen met een druk leven die een snelle auto willen maar ook weer niet een die absurd snel is. De 540i kost om en nabij de 78,000 euro dat is gek genoeg maar 4800 euro meer dan de sedan. Natuurlijk zitten er bij die prijs geen opties. Je kan er natuurlijk ook lekker mee scheuren op de autobahn want het bakbeest heeft maar liefst 340 pk. De topsnelheid ligt wel wat lager dan bij de top 4 want hij maximaal 250 km/h.
