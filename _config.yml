@@ -18,7 +18,7 @@ avatar: https://i.pinimg.com/736x/7f/20/87/7f208760065374af0887ee50f6fdb177--bee
 # Includes an icon in the footer for each username you enter
 footer-links:
   dribbble:
-  email: info@makeamangreatagain.com
+  email: niels.mentink@gmail.com
   facebook:
   flickr:
   github: 
@@ -37,7 +37,7 @@ footer-links:
 disqus:
 
 # Enter your Google Analytics web tracking code (e.g. UA-2110908-2) to activate tracking
-google_analytics:
+google_analytics:UA-110494690-1
 
 # Your website URL (e.g. http://barryclark.github.io or http://www.barryclark.co)
 # Used for Sitemap.xml and your RSS feed
