@@ -4,12 +4,13 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+### Deze website is gemaak door
+- Niels Mentink
+- Lucas Sluijs
+- Floris Paulusma
+- Nick Greve
+- Daan Remmerswaal
 
-### More Information
+### Doneer nu en krijg gratis een leuke sticker
 
-A place to include any other types of information that you'd like to include about yourself.
-
-### Contact me
-
-[email@domain.com](mailto:email@domain.com)
+[Doneer hier](https://paypal.me/nielsmentink)
