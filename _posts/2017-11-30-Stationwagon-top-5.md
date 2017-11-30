@@ -1,6 +1,7 @@
 ---
 layout: post
 title: De stationwagon top 5
+schrijver: Floris Paulusma
 ---
 Hierbij introduceren we onze station wagon top 5 met daarin vijf station wagon waar iedere man van droomt. Met daarin een Ferrari voor vier personen en natuurlijk de enige echte Porsche Panamera.
 
