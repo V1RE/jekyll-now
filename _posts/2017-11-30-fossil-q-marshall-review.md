@@ -3,7 +3,11 @@ layout: post
 title: Review Fossil Q Marshall
 schrijver: Daan Remmerswaal
 ---
-Smartwatches, de ‘must have’ van 2017. Deze week reviewed onze redactie de Fossil Q Marshall. Onze redactie (Daan en Niels) hebben deze smartwatch uitvoerig getest op zowel Android als IOS devices. Fossil is in 2016 begonnen met het maken van smartwatches, de zogenoemde ‘gen1’ was echter niet zo’n succes. Hij zag er niet zo strak uit en werkte verre van goed met de telefoon, de functies waren erg beperkt. De Q Marshall daarentegen is sterk verbeterd, het uiterlijk is strakker en de functionaliteit is top. De Q Marshall heeft de uitstraling van een echt horloge met de functies van een smartwatch, een gave combinatie dus! Wij hebben de horloges getest op Android en IOS en kwamen tot de volgende conclusies:
+Smartwatches, de ‘must have’ van 2017. Deze week reviewed onze redactie de Fossil Q Marshall. Onze redactie (Daan en Niels) hebben deze smartwatch uitvoerig getest op zowel Android als IOS devices.
+
+![fossil](https://tweakers.net/i/TFkbo96PJY6IFCrevNWkYRFO1S4=/i/2001215537.png)
+
+Fossil is in 2016 begonnen met het maken van smartwatches, de zogenoemde ‘gen1’ was echter niet zo’n succes. Hij zag er niet zo strak uit en werkte verre van goed met de telefoon, de functies waren erg beperkt. De Q Marshall daarentegen is sterk verbeterd, het uiterlijk is strakker en de functionaliteit is top. De Q Marshall heeft de uitstraling van een echt horloge met de functies van een smartwatch, een gave combinatie dus! Wij hebben de horloges getest op Android en IOS en kwamen tot de volgende conclusies:
 
 {:.pure-table-striped.pure-table}
 | | Android | iOS |
