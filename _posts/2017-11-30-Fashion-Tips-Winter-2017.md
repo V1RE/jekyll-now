@@ -9,7 +9,8 @@ Deze winter zijn er weer trends teruggekomen, en trends verloren gegaan. Vandaag
 Voor de meeste mannen betekent winter, fifty shades of gray. maar dat is zeker niet nodig een kleur als moss groen is een wat minder toegankelijke kleur dan bijvoorbeeld, Olijf groen maar zeker niet onmogelijk. Draag er een zwarte trui bij of een zwarte broek. En je hebt al snel een donkere maar kleurrijke outfit. 
 
 >I think men underestimate how well darker greens work in an outfit
-- Nas Abraham (stylist Hugo Boss)
+>
+> -- <cite>Nas Abraham (stylist Hugo Boss)</cite>
 
 ![](http://static.fashionbeans.com/wp-content/uploads/2017/09/moss-green-trend.jpg)
 
