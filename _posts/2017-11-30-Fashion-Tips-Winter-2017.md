@@ -8,7 +8,8 @@ Deze winter zijn er weer trends teruggekomen, en trends verloren gegaan. Vandaag
 ## Moss green
 Voor de meeste mannen betekent winter, fifty shades of gray. maar dat is zeker niet nodig een kleur als moss groen is een wat minder toegankelijke kleur dan bijvoorbeeld, Olijf groen maar zeker niet onmogelijk. Draag er een zwarte trui bij of een zwarte broek. En je hebt al snel een donkere maar kleurrijke outfit. 
 
->I think men underestimate how well darker greens work in an outfit -Nas Abraham (stylist Hugo Boss)
+>I think men underestimate how well darker greens work in an outfit
+- Nas Abraham (stylist Hugo Boss)
 
 ![](http://static.fashionbeans.com/wp-content/uploads/2017/09/moss-green-trend.jpg)
 
@@ -20,8 +21,6 @@ Een witte jas of vest met een navy blue trui of shirt. of juist het omgekeerde a
 
 ### Printjes
 
-We gaan weer richting kerst. Die o zo vreselijke truien komen dan weer in beeld. maar er zijn ook leuke truien met een gekke motiefje of een leuke print.
+We gaan weer richting kerst. Die o zo vreselijke truien komen dan weer in beeld, maar er zijn ook leuke truien met een gekke motiefje of een leuke print. Hoe je dit moet dragen ligt heel erg aan wat voor kledingstuk je daadwerkelijk draagt, maar probeer vooral kleuren te combineren die elkaar complimenteren.
 
-hoe je dit moet dragen ligt heel erg aan wat voor kledingstuk je daadwerkelijk draagt .maar probeer vooral kleuren te combineren die elkaar complimenteren.
-
-Hopelijk heb ik je hierbij kunnen helpen, en vind je een toevoeging aan jouw collectie voor deze winter
+Hopelijk heb ik je hierbij kunnen helpen, en vind je een toevoeging aan jouw collectie voor deze winter.
