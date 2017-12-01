@@ -5,11 +5,11 @@ permalink: /about/
 ---
 
 ### Deze website is gemaak door
-- Niels Mentink
 - Lucas Sluijs
 - Floris Paulusma
 - Nick Greve
 - Daan Remmerswaal
+- Niels Mentink
 
 ### Doneer nu en krijg gratis een leuke sticker
 
