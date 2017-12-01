@@ -22,5 +22,16 @@ Fossil is in 2016 begonnen met het maken van smartwatches, de zogenoemde ‘gen1
 | Google  fit | ja | ja |
 | Hartslag meter | nee | nee |
 
+<script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
+<ins class="adsbygoogle"
+     style="display:block; text-align:center;"
+     data-ad-layout="in-article"
+     data-ad-format="fluid"
+     data-ad-client="ca-pub-6396386417402834"
+     data-ad-slot="5390335433"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 Zoals je in het compatibiliteit schema kunt zien werkt het op Android wear draaiende horloge het best met Android. Dit komt vooral door het gesloten platform IOS van Apple, doordat dit zo gesloten is communiceren eigenlijk alleen Apple apparaten(apple watch) er optimaal mee. Een mooi voorbeeld hiervan is het bellen, met een Android telefoon kan de Q Marshall prima bellen, dit lukt helaas niet met Apple. Wat erg jammer is is het feit dat je met een Apple telefoon geen whatsappjes kan beantwoorden. Dit kan helaas alleen met e-mails.  Wat ook een klein minpuntje is, is de hartslagmeter. Veel mensen gebruiken het horloge om mee hard te lopen etc. maar er zit geen hartslagmeter in, je kan dus niet op zien wat je hartslag is (een klein detail maar toch leuk)! Wat een pluspunt is aan het horloge is de prijs, de Q Marshall kost ongeveer de helft van de Apple watch. De prijs kwaliteit is dus ook meer dan prima! De grote pluspunten zijn het uiterlijk en de prijs, het grootste minpunt is het bellen met Apple. 
 ##### Wij geven dit Horloge een mooie **8,6**!
